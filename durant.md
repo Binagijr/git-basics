@@ -1,6 +1,6 @@
 # basketball is life
 ## jersey no 7  
 
-this belimgs us together..
+this belings us together..
 
 here we are
